@@ -1,1 +1,1 @@
-A persnal financial dashboard ~ Finance Dashboat 💸⛵
+A personal financial dashboard ~ Finance Dashboat 💸⛵
